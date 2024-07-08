@@ -1,3 +1,0 @@
-if(x=>12); "Send i all1" = i=1; "Send cover!"
-if(x>12);
-Send(12-2); 10! if(x<2); i wrote x)! (i)
