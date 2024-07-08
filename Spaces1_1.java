@@ -1,0 +1,1 @@
+1 is compiled to then Accept| 1 do a " " Then loop 1 Again! if(1_1>1_1_1_1) write! Well! if(i<1.0.0) if(i,2,1);
