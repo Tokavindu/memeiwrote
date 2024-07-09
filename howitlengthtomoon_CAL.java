@@ -1,2 +1,0 @@
-i=1) Then i typed as 1 metre! Look i At showing As 1cm slow and lil! Then cal it! After then send the math to! Ground i little{Show me moon at largest sim}}; Type!
-He is that close or that ozone is playing tricks! i Let it have there mine! Mine! Let's ink! Cool!

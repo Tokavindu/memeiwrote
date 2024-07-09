@@ -1,1 +1,0 @@
-1 is compiled to then Accept| 1 do a " " Then loop 1 Again!*
